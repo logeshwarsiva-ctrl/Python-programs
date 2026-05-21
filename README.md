@@ -12,7 +12,7 @@ Name: Logeshwar S
 
 Roll no : 621324205026
 
-Linkedin id : linkedin.com/in/logeshwar-s-01391633a
+Linkedin id : www.linkedin.com/in/logeshwar-s-01391633a
 
 ---
 
